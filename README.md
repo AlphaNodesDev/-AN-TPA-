@@ -35,7 +35,7 @@
 
 <p align="center"> 
   <samp>
-    <a href="https://www.google.com/search?q=alphanodes.online">「 Minecraft Hosting 」</a>
+    <a href="https://www.google.com/search?q=alphanodes.online">「 Minecraft Hosting cheep 」</a>
     <br>
     「 I am a full stack web appplication developer from <b>Kerala</b> 」
     <br>
